@@ -19,6 +19,7 @@
                                                                                  
                                                                                                                                                                            
 how? basically you plant apples and in april we will harvest and eat them \
+hard asf picture of an apple \
 ![Alt text](https://www.shutterstock.com/image-photo/big-apple-on-field-260nw-134983865.jpg "hard asl image of an apple")
 <!--
 **choccymalk/choccymalk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
