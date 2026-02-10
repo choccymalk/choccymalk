@@ -1,2 +1,1 @@
-I've been getting into robots lately. \
-As have I.
+All models are wrong, but some are useful.
