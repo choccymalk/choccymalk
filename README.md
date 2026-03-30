@@ -1,1 +1,2 @@
-All models are wrong, but some are useful.
+im burger nothingburger \
+did he just say his suffix is burger
